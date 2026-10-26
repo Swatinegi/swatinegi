@@ -1,4 +1,4 @@
-#.                                              Hi 👋, Swati Negi
+#                                           Hi 👋, Swati Negi
 
 Email: swatinegi434@gmail.com
 Mob: +91-9634417166
